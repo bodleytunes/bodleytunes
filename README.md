@@ -5,6 +5,7 @@
 - Anything and Everything
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
+- Via Fax Machine or Telex.
 - 
 
 <!---
